@@ -1,0 +1,1 @@
+Welcome to my portfolio! I'm Lepsita Peddi, started my career as an Associate Software Engineer at Tech Mahindra, eager to apply my skills in real-world projects. I thrive to learn new technologies and working on personal projects in my free time.
